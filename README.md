@@ -1,0 +1,4 @@
+- 👋 Meu nome é Dayane Cribari
+- 👩‍⚕️ Sou enfermeira intensivista
+- 💡 Estou buscando mudar de carreira
+- 👩‍💻 Resolvi investir na área da TI
